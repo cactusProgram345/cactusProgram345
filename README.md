@@ -6,3 +6,7 @@
 - 😄 Pronouns: He/Him
 - 🏳️ Country: United Kingdom ☕
 
+
+## Other Talents
+
+- 📻 Radio Presenter at TruckSim.FM
